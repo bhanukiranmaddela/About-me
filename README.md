@@ -2,7 +2,7 @@
 📖Always like to be a student.
 
 
-I am interested in Data Science 📈 .
+I am interested in solving problems with coding.
 
 
 💪 Wonders created with technology inspires me.
